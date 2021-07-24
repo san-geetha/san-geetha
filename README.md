@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Python**
 
-- 📫 How to reach me **rishaliseakaran02@gmail.com**
+- 📫 Mail me @ **rishaliseakaran02@gmail.com**
 
 - ⚡ Fun fact **I spend far too much money on food** :joy:
 
